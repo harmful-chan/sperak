@@ -1,10 +1,14 @@
 欢迎来到我们的直播现场，今天上架了很多新的商品。家人们可以查看黄色购物车。有部分商品在做促销活动，千万不要错过。喜欢那件商品请告诉我们链接，我们很高兴你们展示。
+Welcome to our live broadcast, a lot of new products are on the shelves today. Families can check out the yellow shopping cart. Some products are doing promotional activities, don't miss them. If you like that item please tell us the link, we'd love you to feature it.
 
-我家的店铺有十多年的生产经验，不光价格合适，质量一定保证，有问题随时退换。
+我家的店铺有十多年的生产经验，不光价格合适，质量一定保证，有问题随时跟我们客服沟通。
+My store has more than ten years of production experience. Not only is the price suitable, but the quality is guaranteed. If you have any questions, please feel free to communicate with our customer service.
 
 我们今天有很多超值优惠：买多省多。
+We have great deals today: buy more and save more.
 
 点击下方黄色购物车查看你喜欢的商品，在评论区告诉我你喜欢哪个链接，我们很高兴为你们展示。
+Click the yellow shopping cart below to see what you like, tell me which link you like in the comment area, we are happy to show it to you.
 
 ---
 
@@ -45,15 +49,18 @@ V领(v-neck)/圆领(round neck)/薄纱(chiffon)裙摆(skirt)/竖排的纽扣(ver
 
 ---
 
-下一件商品是[15号]链接，他包含[黑色上衣和黑色裤子]，上衣长度[63cm]，裤子长度[61cm]。适合[15个月]到[20个月]的男孩或者女孩。同时上面还有[一闪一闪的棕色鳞片]非常好看。同时面料是由[95的氨纶和棉]构成，非常保暖和对肌肤无害。
+下一件商品是 ... 链接，他包含...，长度... 。适合 ... 到 ...  的男孩或者女孩。衣服的面料是由[95的氨纶和棉]构成，非常保暖和对肌肤无害。
+The next item is ... link, which contains ..., length ... . Perfect for boys or girls from ... to .... The fabric of the clothes is made of [95 spandex and cotton], which is very warm and harmless to the skin.
 
-平常我们卖 [8.99]，今天只售卖 [7.99] 我们只是想和你们交朋友，让你们知道我们是一家专业的童装销售商——这就是为什么今天的价格仅为 [7.99] 英镑。
+平常我们卖 ...，今天只售卖 ... 我们只是想和你们交朋友，让你们知道我们是一家专业的童装销售商,这就是为什么今天的价格仅为 ... 英镑。
+Usually we sell ..., today we only sell ... We just want to make friends with you and let you know that we are a professional seller of children's clothing, that's why today's price is only ... GBP.
 
-请查看黄色购物车中的 [15号] 链接，价格已准备好！ 快去购买吧！库存有限！请确保您在短的时间内完成订单，因为我们的库存数量有限。 抓住今天的机会。
+请查看黄色购物车中的 ...  链接，价格已准备好。 快去购买吧！库存有限！请确保您在短的时间内完成订单，因为我们的库存数量有限。 抓住今天的机会。
+Please see the ... link in the yellow cart, prices are ready. Go buy it now! Limited Stock! Please make sure you complete your order within a short period of time, as our stock is limited. Grab your opportunity today.
 
 
 非常感谢所有还停留在我直播间的家人们，我每天的直播时间是下午13点，风雨不改，如果改了也会视频通知哈，没点关注的记得点关注，点了关注记得每天准时来看哦。
-
+Thank you very much to all the family members who are still staying in my live broadcast room. My daily live broadcast time is 13:00 in the afternoon. The wind and rain will not change. If it changes, I will notify you via video. If you don’t pay attention, remember to pay attention. If you click follow, remember to be on time every day Come and see.
 
 
 
